@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @LINHLNN24042004
+- 👀 I’m interested in  bộ môn Lập trình trên Python
+- 🌱 I’m currently learning  ở trườn Đại học Kinh tế - Luật, Đại học Quốc gia Thành phố Hồ Chí Minh
+- 💞️  Muốn liên lạc với mình, hãy qua liên lạc qua email linhlnn22411@st.uel.edu.vn
